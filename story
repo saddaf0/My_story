@@ -1,2 +1,7 @@
 Once upon a time, there lived a monkey on a mango tree on the banks of a river. The mangoes of that tree were the sweetest of all. The tree bore fruits year-round. The monkey used to live very happily on the tree eating the tasty fruits and playing on the tree. 
 On a particular day, a crocodile came near that mango tree. He seemed very exhausted. The monkey offered him some delicious mangoes from the tree. The crocodile loved those mangoes and thanked the monkey for the same. From then on, the crocodile used to visit the monkey every day and they became good friends.
+One day the crocodile thought to take some mangoes for his wife. When his wife ate the mangoes, she demanded something very absurd from the crocodile. She said that these fruits are so tasty, then how delicious will be the heart of that monkey who regularly eats these mangoes! 
+
+She ordered the crocodile to bring the monkey’s heart for her. The crocodile was shocked at her demand. The monkey was his friend. How could he betray him? He declined to kill the monkey and bring his heart to her. 
+
+The crocodile’s wife was adamant about getting the monkey’s heart. She told the crocodile that she is not keeping well and the doctor has recommended her to eat a monkey’s heart to recover. She even threatened him that if the crocodile didn’t get the monkey’s heart for her, she would surely die. The crocodile had to give in to her order.

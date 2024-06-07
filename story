@@ -1,1 +1,2 @@
 Once upon a time, there lived a monkey on a mango tree on the banks of a river. The mangoes of that tree were the sweetest of all. The tree bore fruits year-round. The monkey used to live very happily on the tree eating the tasty fruits and playing on the tree. 
+On a particular day, a crocodile came near that mango tree. He seemed very exhausted. The monkey offered him some delicious mangoes from the tree. The crocodile loved those mangoes and thanked the monkey for the same. From then on, the crocodile used to visit the monkey every day and they became good friends.
